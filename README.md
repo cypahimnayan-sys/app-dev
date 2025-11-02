@@ -119,5 +119,3 @@ It’s inspiring to see a movie that celebrates Korean culture while delivering 
 ## **Reflection**
 Both *Stranger Things* and *K-Pop: Demon Hunters* show how teamwork and courage can make ordinary people extraordinary.  
 Even though one is about horror and the other about fantasy, both remind me that strength grows when people work together for something they believe in.
-
----
