@@ -56,7 +56,7 @@ Every season makes me feel excited, scared, and inspired all at once.
 
 ---
 
-# *K-Pop: Demon Hunters* (2025) — My Favorite Animated Movie
+# *K-Pop Demon Hunters* (2025) — My Favorite Animated Movie
 
 ## **Favorite Line**
 > “The spotlight can fade, but courage never does.”  
@@ -64,7 +64,7 @@ Every season makes me feel excited, scared, and inspired all at once.
 ---
 
 ## **Overview**
-**K-Pop: Demon Hunters** is a **2025 animated action-fantasy movie** produced by *Sony Pictures Animation* and released on **Netflix**.  
+**K-Pop Demon Hunters** is a **2025 animated action-fantasy movie** produced by *Sony Pictures Animation* and released on **Netflix**.  
 It tells the story of a famous K-pop girl group who secretly live double lives as demon hunters.  
 The movie combines music, Korean culture, and fantasy adventure with a strong message about bravery and teamwork.  
 
@@ -91,14 +91,14 @@ It’s a fast-paced story about friendship, strength, and believing in yourself.
 ---
 
 ## **Did You Know?**
-- *K-Pop: Demon Hunters* is the **first Korean-inspired animated movie** from *Sony Pictures Animation*.  
+- *K-Pop Demon Hunters* is the **first Korean-inspired animated movie** from *Sony Pictures Animation*.  
 - The film features original songs and designs inspired by real K-pop performances.  
 - It was officially released on **June 20, 2025**, and quickly gained fans around the world.  
 
 ---
 
 ## **Why I Love It**
-I love *K-Pop: Demon Hunters* because it shows that music and passion can be powerful weapons for good.  
+I love *K-Pop Demon Hunters* because it shows that music and passion can be powerful weapons for good.  
 It’s full of color, energy, and heart, and I like how the characters fight not just monsters but also their own fears.  
 It’s inspiring to see a movie that celebrates Korean culture while delivering a fun and meaningful story.  
 
@@ -117,5 +117,5 @@ It’s inspiring to see a movie that celebrates Korean culture while delivering 
 ---
 
 ## **Reflection**
-Both *Stranger Things* and *K-Pop: Demon Hunters* show how teamwork and courage can make ordinary people extraordinary.  
+Both *Stranger Things* and *K-Pop Demon Hunters* show how teamwork and courage can make ordinary people extraordinary.  
 Even though one is about horror and the other about fantasy, both remind me that strength grows when people work together for something they believe in.
